@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSecurity
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on fun learning projects
-- 📫 How to reach me @ddhola2@uic.edu
+- 📫 How to reach me dravyadholakiya@gmail.com 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: CS isnt fun enough for me.
 
